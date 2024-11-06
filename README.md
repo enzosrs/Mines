@@ -15,7 +15,7 @@ The **51 Game Mines Predictor** is a robust tool providing **AI-based prediction
 
 To begin using the **51 Game Mines Predictor**, follow these steps:
 
-1. **Join the Telegram Channel**: Start by joining our [official Telegram channel](https://t.me/your_channel_link) for regular updates and community support.
+1. **Join the Telegram Channel**: Start by joining our [official Telegram channel](https://t.me/+up6FPI4weLEyZWVl) for regular updates and community support.
 2. **Register on 51 Game**: Use the registration link provided in our Telegram channel to sign up on the 51 Game platform.
 3. **Deposit Funds**: Make a minimum deposit of 500 to start playing.
 4. **Play Responsibly**: Maintain control while playing. Responsible gaming helps prevent potential losses.
